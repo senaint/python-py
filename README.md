@@ -1,2 +1,2 @@
 # python-py
-linux learning git
+It's Pickkkkle Riiiiiiiiick Morty, its Pickleeeee Rickkkk Mortyyyy.
